@@ -6,3 +6,5 @@ to do hacks, copy the code, (control c) and go into the URL bar (search bar) and
 then, paste the code (control v)
 
 then, enyoy the hacks!
+
+(I also made blooket and prodigy hacks. Duolingo hacks in progress)
