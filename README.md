@@ -7,4 +7,4 @@ then, paste the code (control v)
 
 then, enyoy the hacks!
 
-(I also made blooket and prodigy hacks. Duolingo hacks in progress)
+(I also made blooket, prodigy, and duolingo hacks)
