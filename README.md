@@ -5,7 +5,7 @@ to do hacks, copy the code, (control c) and go into the URL bar (search bar) and
 
 then, paste the code (control v)
 
-then, enyoy the hacks!
+then, enjoy the hacks!
 
 (go here to see my othr hacks:)
 
