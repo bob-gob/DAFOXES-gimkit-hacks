@@ -7,4 +7,6 @@ then, paste the code (control v)
 
 then, enyoy the hacks!
 
-(I also made blooket, prodigy, blacket, khan academy, and duolingo hacks)
+(go here to see my othr hacks:)
+
+https://github.com/bob-gob?tab=repositories
